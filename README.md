@@ -19,4 +19,4 @@ Python | SQL | Jupyther | Power BI | Excel | Statistics | Project Management
 
 📫 Let’s Connect!
 
-LinkedIn | Portfolio | Email
+LinkedIn](https://www.linkedin.com/in/yourprofile) | [Portfolio](www.https://jeamelee.com) | [Email](jeamelee.smith26@gmail.com)
